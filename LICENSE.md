@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with instant DaVinci Resolve for PC | DaVinci Resolve for Windows Extension | collaboration-tools + timeline-editing,
 
 
 
